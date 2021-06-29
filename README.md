@@ -1,0 +1,1 @@
+Gostando do curso porém, sofrendo!!!
